@@ -1,4 +1,4 @@
-# Strogonoff de Frango :tomato:
+# Strogonoff de Linguiça :tomato:
 
 ### Ingredientes
 
@@ -14,12 +14,14 @@
 
 ### Modo de Preparo
 
-1. Em uma panela, misture o frango, o alho, a maionese, o sal e a pimenta.
-2. Em uma frigideira grande, derreta a manteiga e doure a cebola.
-3. Junte o frango temperado até que esteja dourado.
-4. Adicione os cogumelos, o ketchup e a mostarda.
-5. Incorpore o creme de leite e retire do fogo antes de ferver.
-6. Sirva com arroz branco e batata palha.
-
+1. Ferva um caldo de legumes em 2 litros de água.
+2. Pique a linguiça em cubos e frite em uma panela, reserve.
+3. Frite cubinhos de bacon na mesma panela e reserve.
+4. Refogue a cebola na mesma panela.
+5. Adicione o arroz arbóreo, refogue por segundos e adicione o vinho.
+6. Deixe o vinho evaporar bem e vá adicionando o caldo de legumes ao poucos.
+7. Sempre mexendo em fogo médio, adicione uma concha de caldo toda vez que secar o arroz.
+8. Quando o arroz estiver al dente, adicione a linguiça e o queijo ralado.
+9. Misture bem e sirva com bacon picado por cima e queijo ralado.
 
 
